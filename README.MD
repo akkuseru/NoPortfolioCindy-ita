@@ -22,6 +22,7 @@ Siempre serás una persona especial en mi vida y aprecio muchisimo la presencia 
 Espero tengas mas años de vida y seas muy feliz aunque no tengas fiesta quiero que la pases bien
 
 
+ANSI ART AND DRAW BY @Arizona666
 
   .  . .  .  . .  .  . .  .  . .  .  . .  .  . .  .  . .  .  . .  .  . .  .  . .  .  . .  .  . .  . 
    .       .       .       .       .       .     .  .      .       .       .       .       .        
